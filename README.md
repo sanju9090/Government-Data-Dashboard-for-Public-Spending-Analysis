@@ -90,10 +90,6 @@ Transparency & Efficiency – Evaluate fund utilization and corruption metrics.
 
  Sanjana Pisal
 
-📄 References
 
-Government Open Data Sources
-
-Public Finance Research
 
 
